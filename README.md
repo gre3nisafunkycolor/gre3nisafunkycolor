@@ -8,6 +8,8 @@ They/Them
 
 Huge Null & Lampert kinnie!! 
 
+Astronomy nerd ˚₊·—̳͟͞͞✩
+
 ![image](https://github.com/user-attachments/assets/3829f49d-d86a-4236-86f5-0990499898ca)
 
 Together since 05/04/2025 <3
