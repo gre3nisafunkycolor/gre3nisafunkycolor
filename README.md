@@ -4,9 +4,9 @@
 
 <img width="640" height="43" alt="image" src="https://github.com/user-attachments/assets/b8f4124d-39a6-4573-b494-add74ff29c31" />
 
-They/Them
+She/They
 
-Huge Null & Lampert kinnie!! 
+Huge Null kinnie!! 
 
 Astronomy nerd ˚₊·—̳͟͞͞✩
 
