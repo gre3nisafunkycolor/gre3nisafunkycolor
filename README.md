@@ -14,7 +14,7 @@ Astronomy nerd ˚₊·—̳͟͞͞✩
 
 Together since 05/04/2025 <3
 
-NON SHARING Silent Salt Cookie, Dallas Winston, and Attendant yumeshipper , doubles dni!! 
+NON SHARING Silent Salt Cookie,Dallas Winston,Ryland Grace,and Spider-Noir yumeshipper , doubles dni!! 
 
 Silentfaerie/Lily also dni! 
 
