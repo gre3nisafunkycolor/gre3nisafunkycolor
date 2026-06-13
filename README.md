@@ -1,6 +1,6 @@
 <img width="640" height="205" alt="image" src="https://github.com/user-attachments/assets/d4531e93-0bda-4c94-8c73-dc023c5d605e" />
 
-ೄྀNull༄☆
+call me - Blondie, fly me to the moon - Frank Sinatra, just like heaven - The Cure
 
 <img width="640" height="43" alt="image" src="https://github.com/user-attachments/assets/b8f4124d-39a6-4573-b494-add74ff29c31" />
 
